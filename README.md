@@ -1,4 +1,7 @@
-## Hi there 👋
+## EAE CAMBADA 🤙
+Suse?
+Sou apaixonado em jogar futebol, minha paixão 
+é futebol, sem o futebol não existo❤️‍🩹
 
 <!--
 **69luigi69/69luigi69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +17,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![](https://media1.tenor.com/m/GujNeOnkENEAAAAC/ronaldo.gif)
